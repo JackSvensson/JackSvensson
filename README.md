@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **JackenS1997@gmail.com**
 
-- ⚡ Fun fact **When I am not studying. I like to cook food, play and watch sports and hang out with my friends.**
+- ⚡ **When I am not studying. I like to cook food, play and watch sports and hang out with my friends.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
